@@ -1,1 +1,0 @@
-# instanpay.github.io
